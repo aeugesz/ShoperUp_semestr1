@@ -1,0 +1,1 @@
+# ShoperUp_semestr1
